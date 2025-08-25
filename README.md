@@ -1,1 +1,1 @@
-# Informatio-is-beautiful-Clone
+# Information-is-beautiful-Clone
